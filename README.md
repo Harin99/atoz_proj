@@ -1,1 +1,1 @@
-- Notion link: [https://www.notion.so/harin-0201/Project-Reference-2baedf03b14280449910db1affeec0ec?source=copy_link ](https://www.notion.so/harin-0201/Project-Reference-2baedf03b14280449910db1affeec0ec?source=copy_link)
+- Notion link: https://www.notion.so/harin-0201/Project-Reference-2baedf03b14280449910db1affeec0ec?source=copy_link
